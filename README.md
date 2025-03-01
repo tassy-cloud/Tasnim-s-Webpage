@@ -1,2 +1,5 @@
-# Tasnim-s-Webpage
+ Tasnim-s-Webpage
 for study purposes
+Hi my name is Tasnim and im from class 4 Delima. I am a student from SM Sains Kuala Selangor. I live at Kota Damansara Petaling Jaya. On this page i will be talking about myself. My family has 5 members which is my mom, my dad, me and moy other two younger siblings. I have a lot of friends but i have two best friends at school named Alya and Batrisyia. we have been friends for around a year now and life has been great with them. Most of the time we would hang out together filling in our free time. Other than that i also have a cat named Husky. It's not that I wanted to name it after a dog but my cat's grey and white colour pattern on its body reminded me of that tpe of dog breed. 
+My intrestests. Apart from spending time with my friends I also like to listen to music and watch horror films with my sister. I find music calming and peaceful especially while Im in my dorm. It helps block out all the loud noises putting my mind in ease. watching horror movies with my sisters are just how i spend quality time with them. we enjoy it alot. My dislikes are probably running. I don't like how tired i would feel after. the way my legs would hurt and sometimes feel like they would fall off my body. It's quite unpleasant if you ask me. 
+That's all from me for now. thank you for reading!
